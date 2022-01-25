@@ -1,1 +1,1 @@
-# finact2
+# https://franzgarcia1.github.io/finact2/
